@@ -1,1 +1,1 @@
-# jbgoldwebsite_comingsoon
+# jbgoldwebsite comingsoon
